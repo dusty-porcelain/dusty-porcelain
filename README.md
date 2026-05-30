@@ -1,1 +1,1 @@
-**Check out my page soon once i promote it on pony town! Thx for checking it out ^^**
+**Check out my page soon once i promote it on pony town! see you sooner or later ^_^**
